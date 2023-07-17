@@ -1,1 +1,1 @@
-# confusion-class
+Todays topic is totally confused.
